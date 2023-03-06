@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lizzyben
-- 👀 I’m interested in codeing
+- 👀 I’m interested in coding
 - 📫 How to reach me fressolaben@gmail.com
 
 <!---
